@@ -1,4 +1,4 @@
-<h1>Privacy Policy for Nusantara Muslim</h1>
+<h1>Privacy Policy</h1>
 
 Effective Date: 1 August 2023
 
